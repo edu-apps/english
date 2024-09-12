@@ -1,5 +1,7 @@
-Hi, everybody!
+Hello, everybody!
 
-Here are the privacy policies for the apps !
+Here are the privacy policies for educational applications in English and Russian languages!
 
-Good luck with everything!
+Happy and Easy Studying!
+
+And Good Luck with Everything!
